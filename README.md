@@ -1,0 +1,1 @@
+# kurum-ariza-takip
